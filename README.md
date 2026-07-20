@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-VADL930510MGTRZR05
+VADL930510MGTRZR05
